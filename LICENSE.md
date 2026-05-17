@@ -1,4 +1,4 @@
-# 
+# Automatic Vegas Pro for PC executor is the best Vegas Pro for PC executor with audio-recording and auto-cut. Safe, reliable, and optimized for maximum performance.
 
 
 
